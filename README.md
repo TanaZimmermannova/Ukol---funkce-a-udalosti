@@ -1,0 +1,1 @@
+# Ukol---funkce-a-udalosti
